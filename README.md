@@ -2,8 +2,3 @@
 something
 
 
-WTF WTF
-
-WTF
-
-WTFFFFFF
